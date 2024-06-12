@@ -1,0 +1,10 @@
+# numeryczne
+# numeryczne
+# numeryczne
+# numeryczne
+# numeryczne
+# numeryczne
+# numeryczne
+# numeryczne
+# numeryczne
+# Metody-Numeryczne-UMCS
